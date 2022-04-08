@@ -13,9 +13,10 @@ Hola, aquí vas a leer un poco sobre mi 🤩
 > adfusique imis amplexus. Agmina per fabricator
 > mittere Erymanthon habetque tot.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
+Buen dia!!!!!
+
+Mi nombre es Alberto Moreno, soy Ingeniro en Mecatronica, soy amante de la tecnologia
+la electronica, la programacion y redes, me gusta siempre aprender nuevas cosas relacionado 
+en estos temas, gustaria seguir aprendiedo programación para eventualmenete dedicarme laboralmente al 
+desarrollo.
 
